@@ -1,4 +1,4 @@
-- 👋 Prazer Diegão ou Taldo Diego
+- 👋 Diegão ou Taldo Diego
 - 👀 Programador Jr
 - ⚽ Santista 
 - 💻 Gamer
